@@ -1,1 +1,0 @@
-joshuapaulguirao.github.io
